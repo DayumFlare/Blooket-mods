@@ -1,2 +1,2 @@
-Follow me on Tiktok DayumFlare
+Follow me on Tiktok (DayumFlare)
 pvms
